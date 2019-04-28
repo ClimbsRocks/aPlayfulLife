@@ -15,6 +15,10 @@ I like the idea of "time spent awestruck and active out in nature together" play
 
 
 ### Clues
+Bahahahaha.
+
+Two notable caveats: there are two nature areas that are not technically National Parks that I included. One is our most-visited park by nearly any metric I can think of, and the other is our most-visited park by the other metrics I can think of. They've both played such a large role in our travels that it would feel misleading to leave them out of a list like this.
+
 - This park has some of the earliest human artworks we have ever seen- fitting given that we were staying in an ancient village while visiting.
 - On our travels, you told me that what humans tried to erect as a barrier, a symbol of oppression spanning an entire continent, animals managed to turn into their own greenway. This NP is the closest NP to that spot.
 - What's the only park left? It was divided up into three separate sections.
