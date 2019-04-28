@@ -23,7 +23,7 @@ Two notable caveats: there are two nature areas that are not technically Nationa
 - On our travels, you told me that what humans tried to erect as a barrier, a symbol of oppression spanning an entire continent, animals managed to turn into their own greenway. This NP is the closest NP to that spot.
 - What's the only park left? It was divided up into three separate sections.
 Where did we do our first snowshoeing adventure together?
-- This park is where the clues started, if I recall. I believe I gave you a 'T', for 'Teahouse', after we hiked out to a teahouse, through a decent wash of icy snow, past emerald-green lakes cuddled into the nooks of untains.
+- This park is where the clues started, if I recall. I believe I gave you a 'T', for 'Teahouse', after we hiked out to a teahouse, through a decent wash of icy snow, past emerald-green lakes cuddled into the nooks of mountains.
 - Which park were we closest to during my most memorable Bieber rendition? Incidentally, this is probably our position with the lowest concentration of humans within both 100 and 1000 miles radius.
 - Which park has a landing strip, or an airport, for angels?
 Which park is most emblematic of the philosophy 'The best park is the one you visit', just like 'The best bike is the bike you ride'?
